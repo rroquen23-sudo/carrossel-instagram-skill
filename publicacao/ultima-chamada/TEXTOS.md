@@ -3,19 +3,19 @@
 Decisão do Roque (01/11 16h44): prazo final seg 02/11 às 16h, sinal com até 20% de desconto.
 
 ## Reel orgânico (ultima_chamada_organico.mp4)
-Publicar seg 02/11 às 07h (o cronômetro começa em 09:00:00 = tempo real até 16h).
+Publicar seg 02/11 às 07h. Versão HyperFrames: sem cronômetro (Copy: cronômetro fica falso para quem assiste depois das 7h); na tela "HOJE · 16H".
 
 Gancho (Copy, nº 1): "ERA PRA TER ACABADO SEXTA." com o card da oferta de sexta carimbado ENCERRADO e rasgado ao meio.
 
 Legenda:
-Era pra ter acabado sexta. Prorrogamos só até segunda, 02/11, às 16h.
+Era pra ter acabado sexta. Prorrogamos só até hoje, 02/11, às 16h.
 Quem der o sinal de um lote no Condomínio Paraíso Prime até lá garante até 20% de desconto. O lote fica a 1 minuto do rio, com mirante, quiosques com churrasqueira, pergolados e parquinho na área do rio.
 Condições sujeitas a contrato e análise.
 Comenta PARAÍSO e o coordenador de vendas te chama no direct.
 Música: FiftySounds (fiftysounds.com/pt)
 
 1º comentário fixado:
-Comenta PARAÍSO aqui 👇 e o coordenador de vendas te chama no direct. A condição vale até segunda, 16h.
+Comenta PARAÍSO aqui 👇 e o coordenador de vendas te chama no direct. A condição vale até hoje, 16h.
 
 ## Anúncio (ultima_chamada_anuncio.mp4), Roque sobe no Gerenciador
 - Objetivo: clique para wa.link. Mensagem pré-preenchida: "Oi! Vi o vídeo do Paraíso Prime e quero saber da condição até segunda."
